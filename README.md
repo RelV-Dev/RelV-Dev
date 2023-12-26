@@ -1,4 +1,4 @@
-Hi ![](https://emoji.discadia.com/emojis/983ecf78-1724-4be1-8abe-38593eda522b.gif)My name is Rell
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Rell
 ============================================================================================================================
 
 Software Engineer and Designer
